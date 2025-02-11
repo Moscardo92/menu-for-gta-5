@@ -42,9 +42,7 @@ Enhance your gameplay, outsmart your opponents,
 and experience the thrill of pushing the limits in the virtual streets of Los Santos. 
 Download now and become the ultimate GTA 5 player! 🌟
 
-**About**
 
-**m0dmenu** for GTA 5 offers a free and powerful modding experience. This easy-to-use menu allows players to access a variety of cheats and customizations, enhancing your gameplay like never before. Perfect for those looking to explore new features and dominate in Los Santos. Download m0dmenu now and take your experience to the next level! 
 
-This tool includes an HWID spoofer, customizable aimbot, character ESP, and 2D radar for enhanced gameplay. gta-5-hack gta-5-cheat gta-5-mod-menu gta-5 gta-v-mod-menu gta-v-hack gta-online-mod-menu gta-online-hack gta-online-esp gta-5-esp gta-5-aimbot gta-5-script gta-5-bot gta-5-spoofer gta-5-money gta-5-mod gta-5-hack-menu gta-online-cheat 
+
 
